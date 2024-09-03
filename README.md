@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @bhatspranav
-- 👀 I’m interested in ...
+- 👀 I’m interested in codinggggggg
 - 🌱 I’m currently learning Computer Science
